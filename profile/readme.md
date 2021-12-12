@@ -2,7 +2,9 @@
 <br>
 *Also Reach Me On StackOverFlow Same Username*
 </br>
+<br>
 ```We need to make root apps for each root device app```
+</br>
 <br>
 <sub>Teamkohr Wins</sub>
 </br>
